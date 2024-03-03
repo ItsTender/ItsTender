@@ -2,6 +2,7 @@
 
 - Hello There, I’m Tawfeeq or better known as ItsTender 🗿
 - I’m interested in Programming, Video Games and General History!
+- And maybe Austrian Painters too.......
 - I’m currently learning in Al Galil High School
 - Contact: tawfeeqshahoud@gmail.com
 
